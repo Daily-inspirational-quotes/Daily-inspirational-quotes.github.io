@@ -1,2 +1,2 @@
 # Daily inspirational quotes  
-## It is never too late to be what you might have been.
+## Each day is precious, and you should seize the day and live like there is no tomorrow.
